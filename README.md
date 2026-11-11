@@ -146,7 +146,7 @@ DataSphere was developed as an industrial training project to demonstrate practi
 
 
 
-\*\*Gurneet Kohli\*\*
+\*\*Gurneet Kaur Kohli\*\*
 
 
 
